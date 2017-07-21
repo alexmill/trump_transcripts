@@ -9,20 +9,20 @@ type: debate
 Well, I can say this. If the president, and if I were president now, I would certainly want to try and nominate a justice. I'm sure that, frankly, I'm absolutely sure that President Obama will try and do it. I hope that our Senate is going to be able — Mitch, and the entire group, is going to be able to do something about it. In times of delay, we could have a Diane Sykes, or you could have a Bill Pryor — we have some fantastic people. But this is a tremendous blow to conservatism. It's a tremendous blow, frankly, to our country.
 ... I think he's going to do it whether or I'm O.K. with it or not. I think it's up to Mitch McConnell and everybody else to stop it. It's called delay, delay, delay. 
 What we want to do, when we want to do it, and how hard do we want to hit? Because we are going to have to hit very, very hard to knock out
-...[ inaudible ] called me a genius, I like him so far, I have to tell you. Let me just tell you this. Jeb is so wrong. Jeb is absolutely self — just so you understand, you know what that is? That's Jeb's special interest and lobbyist talking. Look, let me just tell you something, Jeb — Jeb is so wrong. You got to fight
+... called me a genius, I like him so far, I have to tell you. Let me just tell you this. Jeb is so wrong. Jeb is absolutely self — just so you understand, you know what that is? That's Jeb's special interest and lobbyist talking. Look, let me just tell you something, Jeb — Jeb is so wrong. You got to fight
 ... You'll end up with World War III...
 ... We're supporting troops...
 ... that we don't even know who they are.
 ... We're supporting troops that we don't even know who they are...
 We have no idea who they are.
 ... Oh, yeah, yeah...
-... Let 44 million in New Hampshire, it was practically [ inaudible ]...
-... 44 million — give me a break. [ crosstalk ]
+... Let 44 million in New Hampshire, it was practically ...
+... 44 million — give me a break. 
 First of all, I have to say, as a businessman, I get along with everybody. I have business all over the world. [ booing ] I know so many of the people in the audience. And by the way, I'm a self-funder. I don't have — I have my wife and I have my son. That's all I have. I don't have this. So let me just tell you, I get along with everybody, which is my obligation to my company, to myself, et cetera. Obviously, the war in Iraq was a big, fat mistake. All right? Now, you can take it any way you want, and it took — it took Jeb Bush, if you remember at the beginning of his announcement, when he announced for president, it took him five days. He went back, it was a mistake, it wasn't a mistake. It took him five days before his people told him what to say, and he ultimately said, "It was a mistake." The war in Iraq, we spent $2 trillion, thousands of lives, we don't even have it. Iran has taken over Iraq, with the second-largest oil reserves in the world. Obviously, it was a mistake.
 George Bush made a mistake. We can make mistakes. But that one was a beauty. We should have never been in Iraq. We have destabilized the Middle East.
 You do whatever you want. You call it whatever you want. I want to tell you. They lied. They said there were weapons of mass destruction, there were none. And they knew there were none. There were no weapons of mass destruction. [ booing ]
 I'm being nice.
-He spent $22 million in... [ crosstalk ]
+He spent $22 million in... 
 The World Trade Center came down during your brother's reign, remember that. [ booing ]
 That's not keeping us safe.
 She should be running.
@@ -37,7 +37,7 @@ You have tremendous waste, fraud and abuse. That we're taking care of. That we'r
 I want everybody taken care of, but we have to take care of our people in this country. We're not taking care of our people. We have no border. We have no control. People are flooding across. We can't have it. We either have a border, and I'm very strongly — I'm not proposing. I will build a wall. I will build a wall. Remember this, the wall will be paid for by Mexico. We are not being treated right. We are not being treated properly. If we don't have borders, if we don't have strength, we don't have a country. People are flowing across. We have to take care of our people. Believe me.
 Look......When I announced that I was running for president on June 16th, illegal immigration wasn't even a subject. If I didn't bring it up, we wouldn't even be talking. Now, I don't often agree with Marco, and I don't often agree with Ted, but I can in this case. The weakest person on this stage by far on illegal immigration is Jeb Bush. They come out of an act of love, whether you like it or not. He is so weak on illegal immigration it's laughable, and everybody knows it.
 ... Spend a little more money on the commercials...
-[ inaudible ]. I don't know what you're talking about.
+. I don't know what you're talking about.
 ... I never called him — I don't call him..
 He also said about language...
 ... Language. Two days ago he said he would take his pants off and moon everybody, and that's fine. Nobody reports that. He gets up and says that, and then he tells me, oh, my language was a little bit rough...
@@ -71,13 +71,13 @@ Yeah, yeah, I know, you're an adult.
 Well, I would say my wife tells me I'm wrong all the time. And I listen. 
 Oh, let me just say — look, I am very open — I hired top people. I've had great success. I built a great, great company. I don't need to do this. I'm self-funding. I'm spending a lot of money. I've spent — like in New Hampshire, I spent $3 million. Jeb bush spent $44 million. He came in five, and I came in No. 1. That's what the country needs, folks. I spent 3, he spends 42 of their money, of special interest money. And it's just — this is not going to make — excuse me. This is not going to make our country great again. This is not what we need in our country. We need people that know what the hell they're doing. And politicians, they're all talk, they're no action. And that's why people are supporting me. I do listen to people. I hire experts. I hire top, top people. And I do listen. And you know what? Sometimes they're wrong. You have to know what to do, when to do it. But sometimes they're wrong.
 Well, I'll tell you — over the years, I've made many speeches. People have asked me, big companies have asked me to make speeches, and friends of mine that run big companies on success. And occasion, in order to sort of really highlight something, I'll use a profanity. One of the profanities that I got credited with using, that I didn't use, was a very bad word, two weeks ago, that I never used. I said, "You." And everybody said "Oh, he didn't say anything wrong." But you bleeped it, so everyone thinks I said the — I didn't say anything. I never said the word. It is very unfair, that criticism. Now, I will say this, with all of that being said, I have said I will not do it at all, because if I say a word that's a little bit off color, a little bit, it ends up being a headline. I will not do it again. I was a very good student at a great school not using — by the way — not using profanity is very easy.
-That's not — let me respond. That's another lie. I never went bankrupt! [ crosstalk ]
+That's not — let me respond. That's another lie. I never went bankrupt! 
 No, but it's another lie.
 No, but it's another lie. This guy doesn't know what he's talking about. Just a lie.
 Let me just tell you. Jeb goes around saying, just like the biggest business leaders in this country, I've used the laws of the land to chapter — I bought a company, I threw it immediately into a chapter, I made a great deal. I uses the laws to my benefit, because I run a company.
 Excuse me, Jeb!
 I never went bankrupt, never. Now — but you don't want to say that. Now, let me just say, I've used it, just like the biggest leaders in the country. Let me tell you something — Florida. Florida, he put so much debt on Florida. You know, we keep saying he's a wonderful governor, wonderful governor. He put so much debt on Florida, and he increased spending so much that as soon as he got out of office, Florida crashed. I happened to be there. It's my second home. Florida crashed. He didn't do a good job as governor.
-And you haven't — excuse me, you haven't heard that. You listen to the good record in Florida. You take a look at what happened, as soon as that year ended he got out, Florida crashed. Too much debt. He loaded it up with debt, and his spending went through the roof. [ crosstalk ]
+And you haven't — excuse me, you haven't heard that. You listen to the good record in Florida. You take a look at what happened, as soon as that year ended he got out, Florida crashed. Too much debt. He loaded it up with debt, and his spending went through the roof. 
 By the way...
 ... he was not a good governor.
 Take a look at your numbers.

@@ -17,7 +17,7 @@ In Wisconsin, you're losing $2.2 billion right now.
 I would do so much better than that.
 No.
 I'm using facts.
-Every major business leader has used the — I never went bankrupt, by the way, as you know, everybody knows. But we — hundreds of companies, hundreds of deals, I've used ???: ... into bankruptcy. That's what's wrong with politicians in Washington right now. They think we can take a country into bankruptcy. [ crosstalk ]
+Every major business leader has used the — I never went bankrupt, by the way, as you know, everybody knows. But we — hundreds of companies, hundreds of deals, I've used ???: ... into bankruptcy. That's what's wrong with politicians in Washington right now. They think we can take a country into bankruptcy. 
 Every major business leader, has used the — I never went bank bankrupt, by the way, as you know, everybody knows. But — hundreds of companies, hundreds of deals, I used the law four times and made a tremendous thing. I'm in business. I did a very good job. But I will say this, and people are very, very impressed with what I've done, the business people. But when the folks of Iowa found out the true facts of the job that you've done in Wisconsin, all of a sudden you, tubed (ph), he was No. 1 and now he's No. 6 or seven in the polls. So, look, we brought it out, you were supposed to make a billion dollars in the state. You lost 2.2 — you have right now, a huge budget deficit. That's not a Democratic point. That's a point. That's a fact. And when the people of Iowa found that out, I went to No. 1 and you went down the tubes.
 I didn't —
 Totally false.
@@ -75,23 +75,23 @@ I'll tell you. I was running —
 — I've made over $10 billion. I had a casino company — Caesars just filed for bankruptcy. Chris will tell you — it's not Chris' fault either — but almost everybody in Atlantic City is either in trouble or filed for — maybe I'll blame Chris.
 But Atlantic City is a disaster —
 Wait a minute, Carly. Wait. I let you speak. Atlantic City is a disaster, and I did great in Atlantic City. I knew when to get out. My timing was great. And I got a lot of credit for it. Many of the great business people that you know — and Carl Icon (ph) is going to work with me on making great deals for this country. But whether it's Carl or so many others that we read about all the time —
-— they have used the laws of the land, which is the — [ crosstalk ]
+— they have used the laws of the land, which is the — 
 ...Well, I'd like to respond, I'd like to respond...
 Well, I think the thing about the flat tax, I know it very well. What I don't like is that if you make $200 million a year, you pay ten percent, you're paying very little relatively to somebody that's making $50,000 a year, and has to hire H&R Block to do the — because it's so complicated. One thing I'll say to Ben is that we've had a graduated tax system for many years, so it's not a socialistic thing. What I'd like to do, and I'll be putting in the plan in about two weeks, and I think people are going to like it, it's a major reduction in taxes. It's a major reduction for the middle class. The hedge fund guys won't like me as much as they like me right now. I know them all, but they'll pay more. I know people that are making a tremendous amount of money and paying virtually no tax, and I think it's unfair.
-Well, I heard Hugh Hewitt, a nice man, he apologized because he actually said that we had a misunderstanding. And he said today that Donald Trump is maybe the best interview there is anywhere that he has ever done. Now unless he was just saying that on CNN to be nice, but he did say that... [ crosstalk ]
+Well, I heard Hugh Hewitt, a nice man, he apologized because he actually said that we had a misunderstanding. And he said today that Donald Trump is maybe the best interview there is anywhere that he has ever done. Now unless he was just saying that on CNN to be nice, but he did say that... 
 And we had a legitimate misunderstanding in terms of his pronunciation of a word. But I would say just... 
-Well, I think it was. And he actually said that. Did you say that? [ crosstalk ]
+Well, I think it was. And he actually said that. Did you say that? 
 OK. So I will say this, though, Hugh was giving me name after name, Arab name, Arab name, and there are few people anywhere, anywhere that would have known those names. I think he was reading them off a sheet. And frankly I will have — and I told him, I will have the finest team that anybody has put together and we will solve a lot of problems. You know, right now they know a lot and look at what is happening. The world is blowing up around us. We will have great teams and great people.
 I hope that answers your question. I mean, you are in the Senate, but I hope that answers your question.
-No, I don't think he's suggesting that at all. I mean... [ crosstalk ]
+No, I don't think he's suggesting that at all. I mean... 
 I don't think he's suggesting that at all.
 Well, you have to understand, I am not sitting in the United States Senate with, by the way, the worst voting record there is today. Number one. I am not sitting in the United States Senate. I'm a businessman doing business transactions.
-I am doing business transactions. I will know more about this — and, as you said, that was very acceptable, and when you listen to that whole interview, it's a great interview, you said it, I didn't. Well, now I did. But...[ crosstalk ]
+I am doing business transactions. I will know more about this — and, as you said, that was very acceptable, and when you listen to that whole interview, it's a great interview, you said it, I didn't. Well, now I did. But...
 Listen, just one second. Just one second.
 I will know...
 ...I will know more about the problems of this world by the time I sit, and you look at what's going in this world right now by people that supposedly know, this world is a mess.
-[ inaudible ]
-[ inaudible ] I'm — and I'm meeting with people that are terrific people, but I have to say something because it's about judgment. I am the only person on this dais — the only person — that fought very, very hard against us (ph), and I wasn't a sitting politician going into Iraq, because I said going into Iraq — that was in 2003, you can check it out, check out — I'll give you 25 different stories. In fact, a delegation was sent to my office to see me because I was so vocal about it. I'm a very militaristic person, but you have to know when to use the military. I'm the only person up here that fought against going into Iraq. [ crosstalk ]
+
+ I'm — and I'm meeting with people that are terrific people, but I have to say something because it's about judgment. I am the only person on this dais — the only person — that fought very, very hard against us (ph), and I wasn't a sitting politician going into Iraq, because I said going into Iraq — that was in 2003, you can check it out, check out — I'll give you 25 different stories. In fact, a delegation was sent to my office to see me because I was so vocal about it. I'm a very militaristic person, but you have to know when to use the military. I'm the only person up here that fought against going into Iraq. 
 Just excuse me, one second, Rand...
 If you don't mind, Rand — you know, you are on last — you do have your 1 percent. I would like — and I think it's very important. I think it's important, because it's about judgment. It's about judgment. I didn't want to go into Iraq, and I fought it, because what I said — what I said...
 ... was you're going to — you're going to destabilize...

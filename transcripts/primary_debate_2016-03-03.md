@@ -22,7 +22,7 @@ Wrong...
 I beat Hillary Clinton in many polls...
 ... I think I'm talking...
 ... I beat Hillary Clinton...
-... I hope you think [ inaudible ]...
+... I hope you think ...
 ... I beat Hillary Clinton in many polls. The Cue poll just came out. I beat Hillary Clinton in a recent Fox poll, I beat Hillary Clinton in USA Today, I beat her today in a poll in Ohio. I beat — I'm the only one that beats Hillary Clinton. I beat — and I have not started on Hillary yet. Believe me, I will...[ cheering ]... start soon. I haven't even started.
 ... In one poll...
 ... In one poll...
@@ -32,16 +32,16 @@ This little guy has lied so much...
 He has lied so much about my record.
 And I will tell you this. First of all, I got a call from my sister and brother tonight, and they said we had no idea Dad gave you $200 million. Believe me, I started off with $1 million. I built a company that's worth more than $10 billion. And I say it not in a bragging way, but that's the kind of thinking we need. Very low debt, tremendous cash flow. My financials are all — they're all in there with the federal elections. You've seen them. Everybody has seen them. I say it only because that's the kind of thinking this country needs with $19 trillion in debit. Believe me. 
 They devalue their currencies. I will do that. And by the way, I have been doing it more and more. But they devalue their currencies, in particular China. Mexico is doing a big number now, also. Japan is unbelievable what they're doing. They devalue their currencies, and they make it impossible for clothing-makers in this country to do clothing in this country. And if you look at what's happened on Seventh Avenue, and you look at what's happened in New York with the garment industry, so much of the clothing now comes out from Vietnam, China, and other places. And it's all because of devaluation. By the way, the Trans-Pacific, if you look at the TPP, a total disaster, which, by the way, Marco is in favor of, they need — it is a disaster for our country. It's trying to be approved by various people, including President Obama. And I'll tell you something. The biggest problem with that is: They don't take into concurrence the devaluation. They're devaluing their currency.
-And they're killing — they're going to...[ crosstalk ]
+And they're killing — they're going to...
 No, no. I have very good answers.
 I know what's happening with the economy. You don't know a thing.
 You haven't employed in your life one person.
-I have employed tens of thousands of people. [ crosstalk ] You haven't employed one person.
+I have employed tens of thousands of people. You haven't employed one person.
 Oh, you know what? You know what? Take a look at Trump Steaks.
 By the way, that's the other thing...
-Mitt Romney...[ crosstalk ]... false, totally false. And now the funny thing is he didn't talk about the hundreds of really successful jobs, the buildings all over the world that have made a fortune. [ crosstalk ]
+Mitt Romney...... false, totally false. And now the funny thing is he didn't talk about the hundreds of really successful jobs, the buildings all over the world that have made a fortune. 
 I will. Don't worry about it, Marco. Don't worry about it. Don't worry about it little Marco, I will.
-Don't worry about it, little Marco. [ crosstalk ]
+Don't worry about it, little Marco. 
 This guy has a number one — the number one absentee record in the United States...
 He doesn't show up to vote.
 That's why the people in Florida do not like him.
@@ -58,7 +58,7 @@ Well, all of a sudden, I hear for 40 years I've been involved in Washington. I h
 ... is it's total gridlock. Nobody gets along. We need people to get along. We need to be able to get things done. 
 Actually, it was for business. It was. It was. It was for business. I pride myself, including outside of the United States. I'm doing almost 120 deals outside of the — which I hope to be able to stop very soon and let my children handle it — but we're doing many, many deals outside of the United States. I support politicians. In 2008, I supported Hillary Clinton. I supported many other people, by the way. And that was because of the fact that I'm in business. I did support very heavily Ronald Reagan. I also supported George Bush, by the way.
 Let me tell you, something, Ted. The last person that Hillary Clinton wants to face is Donald Trump. That I can...
-That I can tell you. [ crosstalk ]
+That I can tell you. 
 Hello.
 Nice to be with you, Megyn.
 You're looking well. You're looking well.
@@ -81,9 +81,9 @@ The — the — the other hotels during the season, they do the same thing. They
 It's very, very hard to get people. But other hotels do the exact same thing. And just so you understand, just again, this is a legal process. This is a procedure. It's part of the law. I take advantage of that. There's nothing wrong with it. We have no choice.
 This wasn't on the subject.
 Tapes were not on the subject, but that's...
-No, no. You're the liar. You're the lying guy up here. [ crosstalk ]
+No, no. You're the liar. You're the lying guy up here. 
 You're the — you're the one. You're the one.
-You're the one. Now, let me just tell you. Let me just tell you. [ crosstalk ] Excuse me. Excuse me. I've given my answer, Lyin' Ted. I've given my answer.
+You're the one. Now, let me just tell you. Let me just tell you. Excuse me. Excuse me. I've given my answer, Lyin' Ted. I've given my answer.
 They won't refuse. They're not going to refuse me. Believe me.
 Let me just tell you, you look at the Middle East. They're chopping off heads. They're chopping off the heads of Christians and anybody else that happens to be in the way. They're drowning people in steel cages. And he — now we're talking about waterboarding. This really started with Ted, a question was asked of Ted last — two debates ago about waterboarding. And Ted was, you know, having a hard time with that question, to be totally honest with you. They then came to me, what do you think of waterboarding? I said it's fine. And if we want to go stronger, I'd go stronger, too, because, frankly......that's the way I feel. Can you imagine — can you imagine these people, these animals over in the Middle East, that chop off heads, sitting around talking and seeing that we're having a hard problem with waterboarding? We should go for waterboarding and we should go tougher than waterboarding. That's my opinion.
 And — and — and — I'm a leader. I'm a leader. I've always been a leader. I've never had any problem leading people. If I say do it, they're going to do it. That's what leadership is all about.
@@ -103,10 +103,10 @@ No, no. But...
 Now on — let me explain that. You're right. Let me explain. First time the question had been put to me, it was very early on. The migration had just started. And I had heard that the number was a very, very small number. By the second day, two or three days later, I heard the number was going to be thousands and thousands of people. You know, when they originally heard about it, they were talking about bringing very, very small numbers in. And I said, begrudgingly, well, I guess maybe that's OK. It was not like, "Let's bring them in," because I think we should build a safe zone in — we should really — what we should be doing is building safe zones so they can stay in their own country and not go all over, and at least this way we're not going to have the problem. That's what we have to do. But just — just to set — because I fully understand what you're asking. When I first heard the question, first time the question was ever asked to me, first time I really had known about the question, the migration had just started. I was very much like, OK, by the time I went back and studied it, and they were talking about bringing thousands and thousands, I changed my tune. And I don't think there's anything wrong with that.
 Megyn, I have a very strong core. I have a very strong core. But I've never seen a successful person who wasn't flexible, who didn't have a certain degree of flexibility. You have to have a certain degree of flexibility. You can't — for instance, let's say, on — on the second question, you can't say it's OK, and then you find out it's not OK, and you don't want to do anything. You have to be flexible, because you learn. I mean, before I knew the question was asked by Bill, and the next day, or the couple of days later, the question was asked by, by — you know — I was asked by a number of people, actually. I was asked by Sean, but I was asked by a number of people. But by that time, the number had increased significantly.
 The next day. But I had learned. I mean, nobody had ever asked me the question. This was brand new. But — and I really mean it. You have to show a degree of flexibility. If you're going to be one way and you think it's wrong, does that mean the rest of your life you have to go in the wrong direction because you don't want to change? 
-[ inaudible ]
-[ inaudible ]
+
+
 ... That's not right...
-... We'll find out when we have the [ inaudible ]...
+... We'll find out when we have the ...
 ... And, by the way, just so you understand......this is a case I could have settled very easily, but I don't settle cases very easily when I'm right. Ninety-eight percent approval rating, we have an "A" from the Better Business Bureau...
 ... We have a 98 percent approval rating from the people who took the course. We have an "A" from the Better Business Bureau. And, people like it. Now, he's saying they didn't learn. We have many, many people that will be witnesses. Again, I don't settle cases. I don't do it because that's why I don't get sued very often, because I don't settle, unlike a lot of other people. We have a situation where we will win in court...[ bell ringing ]...But, many of the people that are witnesses did tremendously well, and made a lot of money...
 ... By taking the course.
@@ -117,9 +117,9 @@ You're going to see, you're going to see.
 ... Before they had the information it got — it is right now an "A", once they had the information...
 ... The only reason that is was a "D" was because we didn't care — we didn't give them the information...
 ... When they got the information it became an "A"...
-... Marco you don't know [ inaudible ]...
+... Marco you don't know ...
 ... Yes.
-...[ inaudible ]
+...
 ... But it was elevated to an "A"...
 ... I can give it to you. I can give it to you tomorrow..
 ... It was elevated to an "A".
@@ -136,7 +136,7 @@ Yes, it has been going for a long time.
 We'll win the case.
 One, one of the victims.
 I gave many people their money back.
-Let me just...[ crosstalk ]
+Let me just...
 We will see who's right at the end of a few years. But all of the — almost all of the people, many, many people signed what's called the report card at the end, did you like the course, how did you like it. Almost all of them said it was terrific, OK? With letters, with this. Some of them are on tape saying it was terrific. Let's see what happens at the end of three years.
 I gave some refunds to people because if they asked for the refunds in a certain period of time, and we gave refunds to people.
 But let's see what happens at the end of three years. Let's see who's right.
@@ -157,7 +157,7 @@ I don't believe these politicians. All talk, no action. I'm standing here listen
 CNN spent a lot of money on a poll, just came out. I'm at 49. He's at 15. He tells me about 65 percent of the people. It's not 65 percent of the people. If you go by that, 85 percent of the people. Then he goes, we have five. And — well, excuse me, I won 10. I won 10 states. If you listen to him, it's like — I won 10 states. Everybody knows that on Super Tuesday Trump was the winner. There wasn't one person that didn't say that. Even the two people on your left and right said we did a great job. So how does he take — how does he take five and say it's better than 10?
 I am by far the leader. But if you listen to a politician, he'll try and convince you otherwise.
 No, I don't. No, I don't.
-According to your poll...[ crosstalk ]
+According to your poll...
 ... I know, but your recent polls have me beating Hillary Clinton, and very, very easily.
 I have nothing to say. I mean, generally speaking, agree with what he said. I would have certainly have rather left it to the states. I was always in favor — I was very surprised when they came up with that decision. I would have certainly — I would have preferred had it been left to the states and I think most people would have preferred that.
 No, I'm a big defender of the Second Amendment. And if you look at what's happened, whether it's in California, where you had the 14 people killed, whether it's in Paris — which, by the way, has the toughest gun laws in the world and 130 people killed. Many, many people in the hospital gravely injured. They will be dying. Many people will be dying in addition. If we had guns, or if they had guns on the other side of the room, with the bullets going in the opposite direction, you would not have had 130 people killed. That I can tell you right now. So I'm a very, very big supporter of the Second Amendment.
@@ -173,9 +173,9 @@ Lyin' Ted.
 Well, let me just say this. I've gotten to know Marco over a period of time, believe me, he is not a leader. Believe me.
 He didn't answer — he's not a leader. And, frankly, when I say they'll do as I tell them, they'll do as I tell them. And that's very — it's very simple. It's very simple. We are in a very dangerous place. We have a depleted military. Totally depleted. We have — by the way, our vets are treated horribly. We're going to take care of our vets. We're going to start taking care of our vets, properly, like we should. But we're going to build up our military, and we're going to get the equipment we want, not the equipment that's sold to us by somebody that gave him and him and not the governor campaign contributions. OK? We're going to get the equipment that the generals and the soldiers want. I will prove to be a great leader. And, you know, it's very interesting, we talk about the polls. Every single poll when it comes to
 Wrong. Wrong.
-Wrong. [ crosstalk ]
+Wrong. 
 Wrong.
-He said very good things about me, and I said...[ crosstalk ]
+He said very good things about me, and I said...
 Yeah, finish.
 Let me just tell you, first of all, I've been hearing this man so long talking about Putin. Putin said about me — I didn't say about Putin — Putin said very nice things about me. And I say very nicely, wouldn't it be nice if actually we could get along with Russia, we could get along with foreign countries, instead of spending trillions and trillions of dollars? You're talking about Flint, Michigan. You're talking about places — we need to rebuild the infrastructure of our country. Wouldn't it be nice if we got along with the world, and maybe Russia could help us in our quest to get rid of
 I think I'd get along very well with Vladimir Putin. I just think so. [ end video clip ] 

@@ -18,7 +18,7 @@ You can go back. You're not talking. You interrupted me.
 Are you going to apologize, Jeb? No. Am I allowed to finish?
 Excuse me, am I allowed to finish?
 So...
-... again... [ crosstalk ]
+... again... 
 I know you're trying to build up your energy, Jeb, but it's not working very well. 
 Look, look, look. We need a toughness. We need strength. We're not respected, you know, as a nation anymore. We don't have that level of respect that we need. And if we don't get it back fast, we're just going to go weaker, weaker and just disintegrate. We can't allow that to happen. We need strength. We don't have it. When Jeb comes out and he talks about the border, and I saw it and I was witness to it, and so was everyone else, and I was standing there, "they come across as an act of love," he's saying the same thing right now with radical Islam. And we can't have that in our country. It just won't work. We need strength.
 With Jeb's attitude, we will never be great again, that I can tell you. We will never be great again.
@@ -38,7 +38,7 @@ Oh, yeah.
 Oh, I know. You're a tough guy, Jeb. I know.
 You're tough.
 Well, let's see. I'm at 42, and you're at 3. So, so far, I'm doing better.
-So far, I'm doing better. You know, you started off over here, Jeb. You're moving over further and further. Pretty soon you're going to be off the end...[ crosstalk ]
+So far, I'm doing better. You know, you started off over here, Jeb. You're moving over further and further. Pretty soon you're going to be off the end...
 I believe I did.
 I have a very hardline position, we have a country or we don't have a country. People that have come into our country illegally, they have to go. They have to come back into through a legal process. I want a strong border. I do want a wall. Walls do work, you just have to speak to the folks in Israel. Walls work if they're properly constructed. I know how to build, believe me, I know how to build. I feel a very, very strong bind, and really I'm bound to this country, we either have a border or we don't. People can come into the country, we welcome people to come but they have to come in legally.
 Well, first of all, I think we need somebody absolutely that we can trust, who is totally responsible; who really knows what he or she is doing. That is so powerful and so important. And one of the things that I'm frankly most proud of is that in 2003, 2004, I was totally against going into Iraq because you're going to destabilize the Middle East. I called it. I called it very strongly. And it was very important. But we have to be extremely vigilant and extremely careful when it comes to nuclear. Nuclear changes the whole ball game. Frankly, I would have said get out of Syria; get out — if we didn't have the power of weaponry today. The power is so massive that we can't just leave areas that 50 years ago or 75 years ago we wouldn't care. It was hand-to-hand combat. The biggest problem this world has today is not President Obama with global warming, which is inconceivable, this is what he's saying. The biggest problem we have is nuclear — nuclear proliferation and having some maniac, having some madman go out and get a nuclear weapon. That's in my opinion, that is the single biggest problem that our country faces right now.
