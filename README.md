@@ -36,7 +36,8 @@ print(speech.metadata)
 {
   'date': '2016-08-09',
   'source': 'http://www.presidency.ucsb.edu/ws/index.php?pid=122534',
-  'type': 'speech', 'description': 'Remarks at a Rally at the University of North Carolina in Wilmington',
+  'type': 'speech', 
+  'description': 'Remarks at a Rally at the University of North Carolina in Wilmington',
   'location': 'Wilmington'
 }
 ```
