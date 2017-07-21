@@ -13,7 +13,7 @@ The transcripts are in markdown files with YAML frontmatter.
 ---
 date: '2016-08-09'
 description: Remarks at a Rally at the University of North Carolina in Wilmington
-location: Wilmington
+location: Wilmington, North Carolina
 source: http://www.presidency.ucsb.edu/ws/index.php?pid=122534
 type: speech
 ---
