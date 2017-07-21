@@ -21,7 +21,7 @@ type: speech
 The crowds we're getting -- I'm the messenger, but I'll tell you what, the message is the right message. We're tired of incompetence. We're tired of not taking care of our military. We're tired of not taking care of our vets, who are being taken care of very poorly. We're tired of so many different things. And this is what happens. So, our mayor, my friend, Rudy Giuliani just walks, I'm t [ ... etc. ... ]
 ```
 
-If you're using Python, reading the data with the `python-frontmatter` package is highly recommended. (See source repo for installation instructions.)
+If you're using Python, reading the data with the `python-frontmatter` package is highly recommended. (See [source repo](https://github.com/eyeseast/python-frontmatter) for more instructions.)
 
 
 
