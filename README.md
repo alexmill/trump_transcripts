@@ -9,7 +9,8 @@ The debate transcripts ([source page](http://www.presidency.ucsb.edu/debates.php
 
 The transcripts are in markdown files with YAML frontmatter. 
 
-```---
+```yaml
+---
 date: '2016-08-09'
 description: Remarks at a Rally at the University of North Carolina in Wilmington
 location: Wilmington
@@ -17,26 +18,27 @@ source: http://www.presidency.ucsb.edu/ws/index.php?pid=122534
 type: speech
 ---
 
-The crowds we're getting -- I'm the messenger, but I'll tell you what, the message is the right message. We're tired of incompetence. We're tired of not taking care of our military. We're tired of not taking care of our vets, who are being taken care of very poorly. We're tired of so many different things. And this is what happens. So, our mayor, my friend, Rudy Giuliani just walks, I'm t [ ... etc. ... ]```
+The crowds we're getting -- I'm the messenger, but I'll tell you what, the message is the right message. We're tired of incompetence. We're tired of not taking care of our military. We're tired of not taking care of our vets, who are being taken care of very poorly. We're tired of so many different things. And this is what happens. So, our mayor, my friend, Rudy Giuliani just walks, I'm t [ ... etc. ... ]
+```
 
 If you're using Python, reading the data with the `python-frontmatter` package is highly recommended. (See source repo for installation instructions.)
 
 
 
 
-```{python}
+```python
 import frontmatter
 speech = frontmatter.load("./transcripts/speech_2016-08-09.md")
 
 print(speech.metadata)
 ```
-```
+```python
 {'date': '2016-08-09', 'source': 'http://www.presidency.ucsb.edu/ws/index.php?pid=122534', 'type': 'speech', 'description': 'Remarks at a Rally at the University of North Carolina in Wilmington', 'location': 'Wilmington'}
 ```
 
-```{python}
+```python
 print(speech.content[0:200])
 ```
-```
+```python
 The crowds we're getting -- I'm the messenger, but I'll tell you what, the message is the right message. We're tired of incompetence. We're tired of not taking care of our military. We're tired of not
 ```
