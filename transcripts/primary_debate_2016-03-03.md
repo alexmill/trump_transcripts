@@ -161,7 +161,7 @@ According to your poll...
 ... I know, but your recent polls have me beating Hillary Clinton, and very, very easily.
 I have nothing to say. I mean, generally speaking, agree with what he said. I would have certainly have rather left it to the states. I was always in favor — I was very surprised when they came up with that decision. I would have certainly — I would have preferred had it been left to the states and I think most people would have preferred that.
 No, I'm a big defender of the Second Amendment. And if you look at what's happened, whether it's in California, where you had the 14 people killed, whether it's in Paris — which, by the way, has the toughest gun laws in the world and 130 people killed. Many, many people in the hospital gravely injured. They will be dying. Many people will be dying in addition. If we had guns, or if they had guns on the other side of the room, with the bullets going in the opposite direction, you would not have had 130 people killed. That I can tell you right now. So I'm a very, very big supporter of the Second Amendment.
-I don't support it anymore. I do not support the ban on assault. [ audience booing ]
+I don't support it anymore. I do not support the ban on assault. [ audience ]
 I — I did not say that. I did not say that.
 I did not say that.
 So we're listening to the all-talk, no-action politician, and he was the primary supporter of John Roberts, who gave us Obamacare.
